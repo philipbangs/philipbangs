@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Philip Y Bangura
-- 👀 I’m interested in collaborating and contributing to open source projects.
+- 👀 I’m interested to collaborating and contributing to open source projects.
 - 🌱 I’m currently learning every day to reach the top of my potentials. 
 - 💞️ I’m looking to collaborate on  website, web application,and UI design projects to solve businesses and real-life problems that yield income and fortune....
 - 📫 How to reach me philipbangura69@gmail.com
